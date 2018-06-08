@@ -16,7 +16,9 @@
    minutos presentando el problema, el proceso y la solución. (Prioriza bien tu
    tiempo). Imagina que este video lo estás mandado para un proceso de
    selección.
-5. Envia el link a tu video y a tu documentación a lalo@laboratoria.la
+5. Envia el link a tu video y a tu documentación a lalo@laboratoria.la con copia
+   a la Alumni Manager (Andrea, Mafe o Yujy) y Job Placement Manager (Ezequiel,
+   Laura o Rodrigo) de tu sede. 
 6. Recibirás un correo con feedback sobre tu solución y fechas tentativas para
    hacer una entrevista de prueba.
 
